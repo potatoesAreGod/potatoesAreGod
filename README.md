@@ -1,8 +1,8 @@
-# 👋 Hi, I'm potatoesAreGod!
+# Hi, I'm potatoesAreGod!
 
 ***
 
-Maybe one beautiful day I will have the inspiration to write something cool here. For now, there will be nothing but emptiness.
+Maybe one beautiful day I will have the inspiration to write something cool here. For now, there will be nothing but the *void*.
 
 ***
 
