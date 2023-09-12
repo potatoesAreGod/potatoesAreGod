@@ -2,7 +2,7 @@
 
 ***
 
-Maybe one beautiful day I will have the inspiration to write something cool here. For now, there will be nothing but the *void*.
+Maybe one wonderful day I'll have the inspiration to write something cool here. For now, there will be nothing but the v̶̱̽̿̄͠ö̶̱̦͚̤̈i̶̛̛̹̞̥̦̣̱͍̓͌̂͌̎d̷̨̧͔͖̭̺̍͌͊͋̒̆.
 
 ***
 
